@@ -1,1 +1,1 @@
-# Feynn-Labs-Internship
+# BIO-TECH-STARTUP-MARKET-SEGMENTATION
